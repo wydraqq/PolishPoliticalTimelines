@@ -1,0 +1,1 @@
+![Wykres](political_timelines.png "Wykres polityczny")
