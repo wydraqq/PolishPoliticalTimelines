@@ -12,6 +12,6 @@ Opcja D:   K. Nawrocki jako prezydent, rząd PiS w kolejnych wyborach
 
 Opcja A jest podobna do roku 2011 gdy prezydentem był Bronisław Komorowski.
 Obcja B jest podobna do roku 2006 gdy prezydentem był Lech Kaczyński. 
-Opcja C nie miała jeszcze miejsca, ale prawie 7 lat klinczy dobrze nie wróży.
+Opcja C nie miała jeszcze miejsca w ciągu ostatnich 25 lat.
 Opcja D jest podobna do roku 2000 gdy prezydentem był Aleksander Kwaśniewski. Ale wtedy władzę przejęła lewica.
 
